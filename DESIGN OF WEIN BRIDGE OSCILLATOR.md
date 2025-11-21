@@ -1,5 +1,5 @@
 ## Expriment No 2
-![WhatsApp Image 2025-11-15 at 09 10 18_4e1881e1](https://github.com/user-attachments/assets/b792c778-0381-49d7-b110-00d9ae748a81)
+
 <img width="858" height="602" alt="image" src="https://github.com/user-attachments/assets/0ab70837-a8e1-408c-8a25-b8cecc6157d8" />
 <img width="823" height="236" alt="image" src="https://github.com/user-attachments/assets/29b1a1ff-3043-425c-9d36-50b3126cd5a6" />
 <img width="681" height="383" alt="image" src="https://github.com/user-attachments/assets/dff2cbda-f10f-4d7f-9aab-9aee3ee219b9" />
